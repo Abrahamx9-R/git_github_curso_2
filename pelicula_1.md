@@ -1,6 +1,6 @@
 # STAR WARS 1
 
-![publicidad](MV5BMTQ4NjEwNDA2Nl5BMl5BanBnXkFtZTcwNDUyNDQzNw@@._V1_.jpg (1382×2048) (media-amazon.com))
+![publicidad](https://m.media-amazon.com/images/M/MV5BMTQ4NjEwNDA2Nl5BMl5BanBnXkFtZTcwNDUyNDQzNw@@._V1_.jpg)
 
 # Rodaje 🎥
 
