@@ -1,0 +1,18 @@
+- Mark Hamill como Luke Skywalker. Skywalker es un joven muy sensible a la Fuerza, que vive con sus tíos en el planeta remoto Tatooine. Siempre ha soñado con tener un futuro sobresaliente, en comparación con su estatus relativo.
+- Harrison Ford como Han Solo. Un codicioso contrabandista al que Obi-Wan y Luke conocen en una cantina, para luego viajar con él en su nave Halcón Milenario, de la cual Chewbacca es el copiloto.
+- Carrie Fisher como la Princesa Leia Organa. Integrante del Senado Imperial y miembro de la Alianza Rebelde. Sus planes consisten en robar los planos de la Estrella de la Muerte, con los que encontrará los puntos más vulnerables de la misma.
+- Peter Cushing como Grand Moff Tarkin. Comandante de la Estrella de la Muerte y gobernador regional. Encabeza la misión de búsqueda de la base secreta rebelde, la cual desea exterminar.
+- Alec Guinness como Obi-Wan Kenobi. Un viejo caballero jedi que participó durante la Gran Guerra Clon. Es quien le revela a Luke la existencia de la Fuerza.
+- Anthony Daniels como C-3PO. Es un robot intérprete que cae en manos de Luke Skywalker, y raramente se despega de R2-D2.
+- Kenny Baker como R2-D2. Robot mecánico que, al igual que C-3PO, cae en manos de Luke. Es portador de un mensaje secreto dirigido a Obi-Wan Kenobi.
+- Peter Mayhew como Chewbacca. Gran amigo de Han Solo y copiloto del Halcón Milenario.
+- David Prowse como Darth Vader. Es un Lord Sith y una figura prominente en el Imperio Galáctico. Su voz pertenece al actor James Earl Jones.
+- Jack Purvis como el líder de los Jawas. Es el líder de un pequeño grupo de seres nómadas, que habitan en el desierto y se dedican a comerciar con droides.
+- Eddie Byrne como el General Willard. Un general de la alianza rebelde y amigo de la Princesa Leia.
+- Phil Brown como Owen Lars. El tío de Luke.
+- Shelagh Fraser como Beru Lars. La tía de Luke.
+- Denis Lawson como Wedge Antilles. Piloto que lucha junto a Luke en la batalla de Yavin.
+- William Hootkins como Porkins. Otro de los pilotos que luchan en la alianza rebelde.
+- Jeremy Bulloch como Boba Fett. Un cazador de recompensas contratado por Jabba, el Hutt.
+- Larry Ward como Greedo. Otro cazador de recompensas contratado por Jabba, el Hutt.
+- Declan Mulholland como Jabba, el Hutt. (Aparece en las escenas eliminadas de la película). (No aparece en la versión final).
